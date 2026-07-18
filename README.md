@@ -11,7 +11,7 @@
 
 📫 How to reach me **ma.isabelleiglesias@gmail.com**
 
-🎮 I play Valorant, Wild Rift, Minecraft, and Stardew Valley
+🎮 I play Wild Rift, Minecraft, and Stardew Valley
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
